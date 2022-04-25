@@ -1,0 +1,1 @@
+# AllMightModel.github.io
